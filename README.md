@@ -13,7 +13,7 @@
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/663c13ed-93b4-4627-96b2-966f86011a9b)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/76c04d84-3245-4f50-a649-03b4803305d5)
 
-![image](https://github.com/dokjafan/dokjafan/assets/133806604/94558945-d428-4579-9cc2-ea7f715be1ac)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/5cc1d7b0-eef5-4ba0-8e5b-595654573eab)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/ba6d18ca-15fc-489d-ae43-9e0f98918ef3)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/7926fd9c-81c4-419d-aae4-e7480b9625cb)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/25a62ae7-32a9-4b95-b186-7bcf62e139f7)
