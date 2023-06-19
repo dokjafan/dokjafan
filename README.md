@@ -8,7 +8,7 @@
 
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/11650ca0-5435-483d-a461-28e263042d65)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/6f59bdae-82dc-4d3c-9f25-b4b3657b5096)
-![image](https://github.com/dokjafan/dokjafan/assets/133806604/901387d1-2a92-4f82-8319-6ab7e200bc4a)
+![image](https://64.media.tumblr.com/5a1ea7d576aa86a0748e2b58507dd2f6/87a60c4bf59d1130-b7/s250x400/57d2cf42ab5cdd8510866b2eaa965f619b325a1b.gifv)
 
 
 
