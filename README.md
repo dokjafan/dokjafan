@@ -25,6 +25,13 @@
 
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/bf6280c7-f43a-4c23-92f2-30dd71562088)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/b8b64382-6ad8-4a9c-a133-06efd7d02a9b)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/38fc8158-bb99-4490-b7c8-6da5ee3757ad)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/e83d49c8-25cb-4360-90e9-7c1c09b154d4)
+
+
+
+
+
 
 
 
