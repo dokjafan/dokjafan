@@ -6,6 +6,9 @@
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/e20e1f97-f264-4e3f-a5e8-cc062aa11298)
 ![image](https://64.media.tumblr.com/e4a30f0ab092edba18af0e881335e028/9b2c300e6b72be16-d3/s100x200/a2945f16cb0a588a7c81ba3f42975f99cb27e0ee.gifv)
 
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/11650ca0-5435-483d-a461-28e263042d65)
+
+
 
 
 
