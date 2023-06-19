@@ -31,6 +31,10 @@
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/38fc8158-bb99-4490-b7c8-6da5ee3757ad)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/e83d49c8-25cb-4360-90e9-7c1c09b154d4)
 
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/c481618f-7b40-4e3d-99f1-120db391f886)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/5faded6b-9749-40d7-9866-e30277d8d5fa)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/1039bcee-ba57-45e9-9a7a-cfccd1e46f6b)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/d5449a2a-fc55-41df-998c-909ceb8b9b22)
 
 
 
