@@ -7,6 +7,8 @@
 ![image](https://64.media.tumblr.com/e4a30f0ab092edba18af0e881335e028/9b2c300e6b72be16-d3/s100x200/a2945f16cb0a588a7c81ba3f42975f99cb27e0ee.gifv)
 
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/11650ca0-5435-483d-a461-28e263042d65)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/6f59bdae-82dc-4d3c-9f25-b4b3657b5096)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/9156e1d8-6506-46c6-9c91-a7254c903e3d)
 
 
 
