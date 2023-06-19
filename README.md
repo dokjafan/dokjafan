@@ -20,7 +20,7 @@
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/f0524e5e-a1c8-4917-a1ca-a45c04e2f2cc)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/e0138523-f992-4a6e-9ad0-902e144742a2)
 
-![image](https://github.com/dokjafan/dokjafan/assets/133806604/7dac4acf-7cac-4cab-854d-4ce86b51e108)
+![image](https://gallery.crd.co/assets/images/gallery11/38667e37_original.gif?v=758f1f62)
 
 
 
