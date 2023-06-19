@@ -11,7 +11,8 @@
 ![image](https://64.media.tumblr.com/5a1ea7d576aa86a0748e2b58507dd2f6/87a60c4bf59d1130-b7/s250x400/57d2cf42ab5cdd8510866b2eaa965f619b325a1b.gifv)
 ![image](https://64.media.tumblr.com/ca1e4ed68ed12e3956dd59384d510740/tumblr_pzen504Irg1xbgu08o1_100.gifv)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/663c13ed-93b4-4627-96b2-966f86011a9b)
-![image](https://github.com/dokjafan/dokjafan/assets/133806604/48ab863b-dd72-4abb-accf-a14c0110e6a8)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/29eeca4c-71fc-4bde-81d4-96fb703fae3a)
+
 
 
 
