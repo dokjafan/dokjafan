@@ -13,7 +13,8 @@
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/663c13ed-93b4-4627-96b2-966f86011a9b)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/76c04d84-3245-4f50-a649-03b4803305d5)
 
-![image](https://github.com/dokjafan/dokjafan/assets/133806604/bf1e7a70-d0ca-47e4-813e-302edab4c78a)
+![image](https://github.com/dokjafan/dokjafan/assets/133806604/94558945-d428-4579-9cc2-ea7f715be1ac)
+
 
 
 
