@@ -1,7 +1,4 @@
 ### test 
-<p align="left">
-<img width="460" height="300" src="https://maguro.carrd.co/assets/images/gallery21/e2dbe57e_original.gif?v=50a2d75d">
-</p>
 
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/7420bc15-4ea5-406b-a72f-c088c44bf232)
 ![image](https://github.com/dokjafan/dokjafan/assets/133806604/1e561973-70d2-4777-bb7d-de8dc0913a28)
